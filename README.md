@@ -1,2 +1,2 @@
 # triplebbbaka
-My Personal Repository
+[My Links!](https://linktr.ee/nebakako)

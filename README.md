@@ -9,3 +9,4 @@
 
 Here on my Github, you may download games that I cannot upload to Itch.io, following my game developing journey from day one and look over the code that I upload here. Thank you for looking and remember that you are loved.</p>
 <img src="https://file.garden/ZqRiHQM4hwGZo7r3/Poster.jpg">
+She/They | 22 | Godot/RPG Maker/Ren'py
